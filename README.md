@@ -1,6 +1,5 @@
 ### Hi there 👋
 
-## Random stats
 
 
 
